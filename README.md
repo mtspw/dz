@@ -1,10 +1,16 @@
 
 # 蜜桃视频最新地址
 
-https://mstp001.com 到 https://mstp019.com
+https://mtspddbp.xyz
+https://mtspf5h2.xyz
+https://mtsphplg.xyz
+https://mtspjhh0.xyz
+https://mtspjiv5.xyz
+ 
 
 # 永久域名
-https://mth5.me
+https://mtspw.live
+https://mtspw.app
 
 # github地址发布页：
 
